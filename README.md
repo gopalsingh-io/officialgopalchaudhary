@@ -1,6 +1,6 @@
 ## Hi👋, I'm Gopal Chaudhary
 
-Email Me ✉️ officialgopalchaudhary925917@gmail.com For Collaboration/Project or Anything Else😊😊.
+Email Me ✉️ gopalsingh925917@gmail.com For Collaboration/Project or Anything Else😊😊.
 
 🚀 Cloud & DevOps Enthusiast | Full- Stack Developer | Automating the World, One Pipeline at a Time
 
